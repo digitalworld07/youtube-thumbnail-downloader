@@ -26,6 +26,3 @@ This tool is perfect for:
 ✅ **Completely Free** – No hidden charges or subscriptions.  
 ✅ **Supports All Devices** – Works on Windows, macOS, Android, and iOS.  
 ✅ **SEO-Friendly** – Ideal for content creators looking to enhance their thumbnails.  
-
-## 📩 Get Started Now  
-Visit **[ThumbsLab.com](https://thumbslab.com)** and start downloading YouTube thumbnails in **HD & 4K** effortlessly! 🚀  
